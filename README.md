@@ -1,7 +1,7 @@
 
 
 
-💡  Hi, I’m @JudiWob 
+💡  Hi, I’m JudiWob 
 
 💡  I’m currently learning at 42 Wolfsburg
 
